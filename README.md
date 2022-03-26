@@ -1,4 +1,6 @@
-### Hi there 👋
+### Wait, you guys actually maintain good GitHub profiles?
+
+Check out my [website](https://www.nqind.com) or join my minecraft server at mc.nqind.com
 
 <!--
 **Noorquacker/Noorquacker** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
