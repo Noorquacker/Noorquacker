@@ -4,11 +4,13 @@
 
 ![](https://komarev.com/ghpvc/?username=Noorquacker&color=blueviolet)
 
-If you have Minecraft, definitely check out my Minecraft server at mc.nqind.com. Nearly 6 years strong 💪
+My pronouns are he/him
+
+If you have Minecraft, definitely check out my Minecraft server at mc.nqind.com. ~~Nearly~~ _Over_ 6 years strong 💪
 
 Check out my [website](https://www.nqind.com) or join my minecraft server at mc.nqind.com
 
-In case of emergency or hire, email me at [noorquacker@nqind.com](mailto:noorquacker@nqind.com)
+In case of emergency or hiring opportunity, email me at [noorquacker@nqind.com](mailto:noorquacker@nqind.com)
 
 <!--
 **Noorquacker/Noorquacker** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
