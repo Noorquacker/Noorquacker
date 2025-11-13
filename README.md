@@ -6,9 +6,9 @@
 
 My pronouns are he/him
 
-If you have Minecraft, definitely check out my Minecraft server at mc.nqind.com. ~~Nearly~~ _Over_ 6 years strong 💪
+If you have Minecraft, definitely check out my Minecraft server at mc.nqind.com. Nearly 10 years strong 💪 started on May 15, 2016
 
-Check out my [website](https://www.nqind.com) or join my minecraft server at mc.nqind.com
+Check out my [website](https://www.nqind.com)
 
 In case of emergency or hiring opportunity, email me at [noorquacker@nqind.com](mailto:noorquacker@nqind.com)
 
